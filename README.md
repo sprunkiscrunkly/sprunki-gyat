@@ -60,4 +60,7 @@ Today, Sprunki Gyat represents a bold step into music gaming, where creativity a
 
 [Play Sprunki Gyat Now - It's Free!](https://sprunkiscrunkly.com/sprunki-gyat/)
 
-Sprunki Gyat Community
+[Sprunki Gyat Community](https://communityin.oppo.com/thread/1776185891937583111)
+
+
+
